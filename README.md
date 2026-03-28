@@ -1,4 +1,4 @@
-Hey, I'm Jaydeep Jadeja or Jd whichever on you may like.
+Hey, I'm Jaydeepsinh Jadeja or Jd whichever on you may like.
 A student who builds things that actually work — not slide decks about things that might.
 
 •The Story So Far
